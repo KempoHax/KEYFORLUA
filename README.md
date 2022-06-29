@@ -1,1 +1,2 @@
-# KEYFORLUA
+//Key\\
+dsuomivoitolla22lolxddnidjsadiojasdiojsadoijdoia
